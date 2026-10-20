@@ -1,0 +1,2 @@
+# atoikura
+Privacy policy
